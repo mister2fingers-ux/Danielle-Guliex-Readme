@@ -100,6 +100,10 @@ My goal is to demonstrate not only technical ability, but the ability to communi
 
 # 📫 Contact
 
-LinkedIn: Add your LinkedIn profile here
+LinkedIn: https://www.linkedin.com/in/danielle-guliex-b6b828363?utm_source=share_via&utm_content=profile&utm_medium=member_ios
 
-Email: Add your professional email here
+Email: Danielleguliex@gmail.com
+
+Phone: 725-724-8567
+
+Website: www.inkandcreativity.com
